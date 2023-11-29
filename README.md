@@ -1,3 +1,3 @@
 Video links :
-https://us06web.zoom.us/rec/share/buG_aGZdshVLgy4bVaVN_9JHwS94O-iri_FJL5h2Sax13fQm5EzCDpHXpTsaW6Oj.2545K2-pEnuvHEGF 
-Passcode: 9#j3hVG=
+https://us06web.zoom.us/rec/share/8PBD0314VZQE-S3RiH67AlCHeqKCI3nr4Rv9lTU55DHio-0jP-s7CVq-zwQlOCPt.RmSTuxOwIZQXOZDG 
+Passcode: &9P##6vU
